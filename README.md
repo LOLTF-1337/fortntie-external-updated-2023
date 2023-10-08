@@ -12,5 +12,5 @@
 - Updated Cleaners
 - And way more!
 
-||@everyone @here||
+
 https://discord.gg/ExKS2kvhQU
